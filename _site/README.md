@@ -1,2 +1,0 @@
-# yooojhooon.github.io
-
